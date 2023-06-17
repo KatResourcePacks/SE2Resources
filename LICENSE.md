@@ -5,7 +5,7 @@
  -
 You cannot: Steal and Claim it's your own
  
-You cannot: Copy without permission from *@TheKatHere or @NovaNebula*
+You cannot: Copy without permission from *@TheKatHere or @ImNovaNebula*
 
 You cannot: distribute among your communities, **Instead Give Your Community the link to the pack** (This is for Safety, Please do not be malicious)
 
